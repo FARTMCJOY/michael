@@ -1,2 +1,2 @@
 # michael
-i dont like you. ilke ebikes, cats, some dogs, and steak.
+i dont like you. i like ebikes, cats, some dogs, and steak.
